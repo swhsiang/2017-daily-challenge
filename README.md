@@ -19,7 +19,7 @@ Complete every single thing.
 
 ### 19
 
-* [50 vocabularies](https://quizlet.com/44799774/nawl-2-51-100-flash-cards/)
+* [50 vocabularies](https://quizlet.com/44820585/nawl-3-101-150-flash-cards/)
 
 ### 22
 
@@ -30,3 +30,8 @@ Complete every single thing.
     ](https://www.youtube.com/watch?v=GVWFGIyNswI)
     * [How to Respond in English Quickly and Automatically](https://www.youtube.com/watch?v=eYfq4uuvLbQ)
     * [完整・全解析最有效背單字法 // Comprehensive Method of Vocab Memorization](https://www.youtube.com/watch?v=gkVpNq4-wqs)
+
+### 28
+
+* [50 vocabularies](https://quizlet.com/44835542/nawl-4-151-200-flash-cards/)
+
